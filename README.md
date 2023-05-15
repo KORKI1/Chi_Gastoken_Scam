@@ -1,5 +1,7 @@
 # Chi_Gastoken_Scam
 
+![](https://komarev.com/ghpvc/?username=KORKI1)
+
 Check it out on youtube: https://www.youtube.com/watch?v=77BrhWSsEpE
 
 📝 High-Fee Token Approval Smart Contract
