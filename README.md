@@ -10,6 +10,8 @@ Check it out on youtube: https://www.youtube.com/watch?v=77BrhWSsEpE
 
 🔥🔥🔥 We have limited availability with only 30 units for sale! Don't miss out! Contact me on Telegram or Discord to secure your unit now! 🔥🔥🔥
 
+![alt text](https://github.com/KORKI1/Chi_Gastoken_Scam/blob/main/ou.png?raw=true)
+
 
 
 Telegram: @korki
