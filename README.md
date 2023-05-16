@@ -16,5 +16,5 @@ Check it out on youtube: https://www.youtube.com/watch?v=77BrhWSsEpE
 
 
 
-Telegram: @korki
+Telegram: @KorkiDev
 Discord: KORKI#5945
